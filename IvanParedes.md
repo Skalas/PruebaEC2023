@@ -1,2 +1,0 @@
-# Iván Paredes Resendiz
-!!!!!!!!
